@@ -1,0 +1,2 @@
+# vargapeter.com
+My Blog
